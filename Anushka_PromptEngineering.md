@@ -71,7 +71,7 @@ I am grateful for your confidence in my abilities and sincerely appreciate the o
 Thank you again for your time and understanding. I wish you and your team continued success.
 
 Kind regards,
-[Your Name]
+Anushka
 
 ---
 
